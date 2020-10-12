@@ -1,6 +1,7 @@
 # UPDATES
 ## July 27th, 2020
 Swag has 🎉 shipped 🎉 !! 
+Still not reached to me by the way
 
 If you are located in the United States, you will likely receive something in the next week. International shipments will arrive in 2-3 weeks. If your country is not currently accepting international shipments, we will hold onto your swag until [shipping restrictions](https://about.usps.com/newsroom/service-alerts/international/welcome.htm) have been lifted. Please be patient as shipping in many parts of the world is currently delayed. 🙌. 
 
